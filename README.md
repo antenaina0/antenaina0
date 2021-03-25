@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Animasolus
+- 👀 I’m interested in living, having fun, learning and ethics  
+- 🌱 I’m currently learning anything I find fun in and that I might need.
+- 💞️ I’m looking to collaborate on those project I might have time working in.
+- 📫 You can reach me here: https://www.linkedin.com/in/rarihaja-razanadrakoto-antenaina-632b1310b/
