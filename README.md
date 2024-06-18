@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Animasolus
+- 👋 Hi, I’m @antenaina0
 - 👀 I’m interested in living, having fun, learning and ethics  
 - 🌱 I’m currently learning anything I find fun in and that I might need.
 - 💞️ I’m looking to collaborate on those project I might have time working in.
